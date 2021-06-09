@@ -15,3 +15,8 @@ I enjoy working at many groups to help grow, and support ro-av groups. I am very
 ![image](https://user-images.githubusercontent.com/79596269/121394052-f6197f00-c91e-11eb-9518-d38efbd99544.png)
 ![image](https://user-images.githubusercontent.com/79596269/121394194-18ab9800-c91f-11eb-920c-cf2fc869dcc8.png)
 
+
+### Discord.JS Bots
+
+![image](https://user-images.githubusercontent.com/79596269/121394731-a12a3880-c91f-11eb-9be7-6e46d0551e81.png)
+![image](https://user-images.githubusercontent.com/79596269/121394923-d898e500-c91f-11eb-85a7-7cbbd9916a69.png)
