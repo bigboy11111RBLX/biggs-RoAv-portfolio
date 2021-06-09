@@ -6,8 +6,8 @@ I enjoy working at many groups to help grow, and support ro-av groups. I am very
 
 
 ### Contact me:
-## Discord: Bigboy_11111#0001
-## Roblox: Bigboy_11111
+# Discord: Bigboy_11111#0001
+# Roblox: Bigboy_11111
 
 
 # Pictures
