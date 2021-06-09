@@ -5,9 +5,9 @@ I am a developer that developes Discord.JS bots, planes, liveries, apps, website
 I enjoy working at many groups to help grow, and support ro-av groups. I am very caring for others.
 
 
-### Contact me:
-# Discord: Bigboy_11111#0001
-# Roblox: Bigboy_11111
+# Contact me:
+### Discord: Bigboy_11111#0001
+### Roblox: Bigboy_11111
 
 
 # Pictures
